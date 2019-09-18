@@ -1,7 +1,7 @@
 # Welcome to the Nimbus School of Recording & Media Slack Team.
 
 ## Introduction
-Introduc
+Introduction
 
 We hope that you find the community to be enriching to your personal and professional lives, and above all else a place of camaraderie where our collective knowledge and differences are celebrated in a positive, welcoming environment.
 
