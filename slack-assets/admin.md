@@ -4,4 +4,4 @@ Gordon Breckenridge - gord@nimbusrecording.com
 
 Courtney Beherall - courtney@nimbusrecording.com
 
-John Robertson - johnr@nimbusrecording.com
+John Robertson - john@nimbusrecording.com
